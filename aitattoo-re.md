@@ -62,6 +62,12 @@ It builds creativity, focus, coordination, and emotional expression.
 
 ⸻
 
+### 6'7 Kid – From Viral Clip to Tattoo Icon
+
+Short essay on how the 6'7 Kid meme moved from the basketball court to TikTok, comments and eventually tattoo culture:
+
+👉 https://aitattoo.art/blog/6-7-kid-from-basketball-court-to-internet-sensation---the-growth-journey
+
 Final Thoughts
 
 From childhood coloring to adult tattooing, creativity stays with us—only the medium changes. Coloring helps children discover imagination, while tattoos help adults express the stories they’ve collected along the way.
